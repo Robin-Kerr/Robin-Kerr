@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything relevant to the above!
 - 📫 How to reach me: https://www.linkedin.com/in/robinkerr1
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I'm the eldest child of an eldest child of an eldest child of an eldest child
+- ⚡ Fun fact: I'm a keen jazz sax player 
 
 <!---
 Robin-Kerr/Robin-Kerr is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
